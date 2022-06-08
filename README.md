@@ -1,6 +1,6 @@
 ## Helen Johnston
 
-[instagram](https://instagram.com/helljohnston)
+[Instagram](https://instagram.com/helljohnston)
 
 
 
